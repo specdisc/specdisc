@@ -16,7 +16,7 @@
 
  ⠀ ⠀
 <p align="center">
-andrew ⠀ou ⠀disc ⠀ ⠀<img src="https://pixels.crd.co/assets/images/gallery28/fa02eeb6.gif?v=9b219e01"> ⠀ ⠀it / shi
+CD⠀ou ⠀renard ⠀ ⠀<img src="https://pixels.crd.co/assets/images/gallery28/fa02eeb6.gif?v=9b219e01"> ⠀ ⠀shi / hier
 <p align="center">
 bpdaspd ⠀ ⠀fictive ⠀ ⠀srcmates ok
 </p>
