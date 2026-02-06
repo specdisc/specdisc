@@ -12,3 +12,5 @@ tmasc ⠀aro ⠀intersx ⠀lesbian
 bpdtism ⠀aspd ⠀system ^w*
 </p>
 
+<p align="center">
+<img src="https://files.catbox.moe/v81p3a.gif" width="40%" height="40%" >
